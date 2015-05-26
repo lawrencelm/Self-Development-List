@@ -38,12 +38,12 @@ Go out of your way to help people.  Few things in life are as satisfying.  Be ni
 23. The only person you have to beat is you. That's not some hippy-dippy 'believe in yourself' bullshit, it's how you win. 
 24. Being a "Genius" isn't about high IQ or great grades, it's about having a level of insight in areas which is well beyond what others have.
 
-If you're bored, try making it all interesting again, don't consider learning as being for 'learning sake', instead seek to deepen your insight so that you can do the "cool stuff" which leaves the rest of us in awe.
+ If you're bored, try making it all interesting again, don't consider learning as being for 'learning sake', instead seek to deepen your insight so that you can do the "cool stuff" which leaves the rest of us in awe.
 
 25. You need a good target. A tough one. Something that can keep you engaged and make your thoughts streamline. Others will achieve, don’t be affected.
 
 26. "In a concentrated population of intelligent people, the worst thing you can do is start comparisons and compete head to head."
-You have to find your niche, the one or two things you're good at doing (and more importantly, enjoy doing). Excel in those and you'll find that you love learning again.
+ You have to find your niche, the one or two things you're good at doing (and more importantly, enjoy doing). Excel in those and you'll find that you love learning again.
 
 27. Forget the metrics, grade curves for a moment... focus on a temporal timeline of your own personal growth.
 What have you learned with each passing day, month or year?
