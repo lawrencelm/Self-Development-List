@@ -2,7 +2,7 @@
 Compilation of best advice read/received and things I want to improve on. I will keep adding things I read to this list and updating it. I can only remove something from the list once I have solved the issue or really improved.
 
 1. NO DISTRACTIONS
-..* Minimize your own cognitive load from distracting things that don’t really matter.  It’s hard to overstate how important this is, and how bad most people are at it.  Get rid of distractions in your life.  Develop very strong ways to avoid letting crap you don’t like doing pile up and take your mental cycles, especially in your work life.
+⋅⋅* Minimize your own cognitive load from distracting things that don’t really matter.  It’s hard to overstate how important this is, and how bad most people are at it.  Get rid of distractions in your life.  Develop very strong ways to avoid letting crap you don’t like doing pile up and take your mental cycles, especially in your work life.
 2. Keep your personal burn rate low
 ..* Keep your personal burn rate low.  This alone will give you a lot of opportunities in life.
 3. Never Touch Things Twice/10 Minutes Rule
